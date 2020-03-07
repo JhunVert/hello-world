@@ -1,1 +1,4 @@
 # hello-world
+
+Hello earthlings!
+I am Jhun Vert, a soul from the 7th dimension.  I was once a being from the ninth dimension but I made a choice to experience more in the lower dimension, the reason why I descend.  I am here on planet earth to experience the great separation from my being to the point of forgetting my true self.  It is not easy, but I was able to conquer the limits imposed by physical this physical world to our souls. I can vividly remember who am I now, I am a soul from the seventh dimension with a mission.  My mission is to gain knowledge on how to ascend from physical being to higher level of being. The wisdom I lerned from here will be deployed to all huanity specially to the new borns.  Expect that not for long, humanity will take the greatest leap human had ever made. 
